@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SOHXIN
+- 👀 I’m interested Software Engineering
+- 🌱 I’m currently studying Diploma in ICT specialism in Software Engineering in Asia Pacific University (APU)
+- 📫 How to reach me: sohxin28@gmail.com
+- 😄 Pronouns: She/Her
